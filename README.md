@@ -1,4 +1,4 @@
-• 🍉Assalamualaikum! I'm ABidah (not Adibah) 
+• 🍉Assalamualaikum! I'm ABidah (not Adibah)
 • 🌱Currently learning Data Science
 • 🌍Eager to help people & make a better world 
 • 🏎️Let's connect👉🏻 <a href=www.linkedin.com/in/nurul-abidah-shukor-b105a0178>LinkedIn</a>
